@@ -1,6 +1,6 @@
-![Banner](https://imgur.com/a/VFLA3fb)  
+![Banner](https://imgur.com/nUTtfl7)  
 A1 DEVELOPER  
-OR. DENSOMASSIC  
+
 
  sadik-simeklioglu
  Merhaba, ben [Sadık]! 👋  
