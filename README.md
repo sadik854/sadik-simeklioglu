@@ -1,4 +1,4 @@
-![Banner](https://i.imgur.com/7x4j7yH.jpg)  
+![Banner](https://imgur.com/a/VFLA3fb)  
 A1 DEVELOPER  
 OR. DENSOMASSIC  
 
